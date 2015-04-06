@@ -1,1 +1,1 @@
-# sophiasuncpa.github.io
+# sophiasun.github.io
